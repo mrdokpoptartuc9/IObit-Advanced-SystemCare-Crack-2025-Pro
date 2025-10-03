@@ -1,1 +1,1 @@
-# jk2yd88sn9
+https://github.com/syda9mr7wc/syda9mr7wc/invitations
